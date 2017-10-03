@@ -17,6 +17,6 @@
 
 无论您有任何疑惑，尽管来信，我们会尽快给您答复！
 
-邮箱地址：dpqrd@163.com
+邮箱地址：ob48r4@163.com
 
 [隐私协议](https://github.com/ce43236716/chengrenyeyue/raw/master/privacy.cmd)
